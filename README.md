@@ -12,6 +12,15 @@
 
 <img width="1919" height="944" alt="7" src="https://github.com/user-attachments/assets/6c0d762f-a4cd-4161-a39e-1996a5959a16" />
 
+## 📬 Connect with Me
+I'm always open to discussing new projects, creative ideas, or opportunities to be part of your visions.
+
+Email: hanzlashahzadhanzlashahzad@gmail.com
+
+LinkedIn: https://www.linkedin.com/in/hanzla-shahzad
+
+GitHub: https://github.com/hanzlashahzad01/hanzlashahzad01
+
 
 
 
